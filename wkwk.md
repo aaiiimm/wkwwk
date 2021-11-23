@@ -1,0 +1,1 @@
+![](C:\Users\Aimm\Downloads\Oranya Kemerahan Muda Sapuan Kuas Fotografi Logo.png)
